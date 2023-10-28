@@ -1,2 +1,2 @@
 # Apna College
-my self md khalid mojib from bihar
+my self md khalid mojib from bihar.
